@@ -1,4 +1,4 @@
-<h1 align="center">🐉 lovvcode / experienced coder </h1>
+<h1 align="center">❤ intl0v / vibe coder </h1>
 
 ###
 
